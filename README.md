@@ -1,0 +1,2 @@
+# Programim
+akıllı izleme
